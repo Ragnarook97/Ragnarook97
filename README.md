@@ -1,5 +1,8 @@
 ### Hi there 👋
 
+![image](https://github.com/Ragnarook97/Ragnarook97/assets/142867500/7899e3f3-ac59-4fbf-a2a1-993eabde2afc)
+
+
 <!--
 **Ragnarook97/Ragnarook97** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
