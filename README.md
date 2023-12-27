@@ -1,6 +1,7 @@
 ### Hi there 👋
 
-![image](https://github.com/Ragnarook97/Ragnarook97/assets/142867500/7899e3f3-ac59-4fbf-a2a1-993eabde2afc)
+![image](https://github.com/Ragnarook97/Ragnarook97/assets/142867500/fbe0c1fc-68f3-404f-ba38-425f1f1c4dbf)
+
 
 
 <!--
